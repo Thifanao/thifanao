@@ -12,4 +12,4 @@ belem.thifany@escola.pr.gov.br
 
 thifanybelem32@gmail.com
 
-![](https://tenor.com/fzLbbzBRfLX.gif)
+![](https://media1.tenor.com/m/PwwADLHI1TMAAAAC/dora-dora-the-explorer.gif)
