@@ -11,3 +11,5 @@ Meu nome é Thifanão
 belem.thifany@escola.pr.gov.br
 
 thifanybelem32@gmail.com
+
+![](https://tenor.com/fzLbbzBRfLX.gif)
